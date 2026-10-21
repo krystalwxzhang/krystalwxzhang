@@ -6,5 +6,5 @@
 - **Open to Collabs:** Building meaningful projects for the community that make AI feel more personal and human.
 - I’m looking for help on how to break into tech as a marketing girlie.
 - Ask me about any ugc, next reccs to travel to, growth, and all things marketing.
-- 📫 **Email**: krystal.zhang@torontomu.ca
+- 📫 **Contact me**: krystal.zhang@torontomu.ca
 
