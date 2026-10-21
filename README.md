@@ -1,6 +1,6 @@
 ## Hi, I'm Krystal 👋
 
-- I'm a Marketing student @ Toronto Metropolitan University + Account Manager of Ted Rogers Marketing Association 
+- I'm a Marketing student @ Toronto Metropolitan University + Account Manager of TRMA 
 
   🌱 Currently a Growth Fellow @ Moonshot (YC S26)
 - **Open to Collabs:** Building meaningful projects for the community that make AI feel more personal and human.
